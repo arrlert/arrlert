@@ -1,6 +1,6 @@
 ![](https://i.pinimg.com/736x/ff/02/cc/ff02cc1c67e1f9e0a5447a01704a8e0e.jpg)
 
-[strawpage](https://jazzzie.straw.page/) 
+[strawpage](https://jazzzie.straw.page/) < about me yay
 
 
 
