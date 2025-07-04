@@ -3,7 +3,7 @@
 [strawpage](https://jazzzie.straw.page/) ‪♡ [carrd](https://arrlertt.carrd.co/) 
 
 
-![](https://cdn.cdnstep.com/wY2jeMFNr1KWnmB4X2v2/cover-1.thumb256.png)
+![](https://cdn.cdnstep.com/eFElt5N5NYdwUYTRkmHo/7.png)
 
 
 
