@@ -2,7 +2,7 @@
 
 [strawpage](https://jazzzie.straw.page/) ‪♡ [carrd](https://arrlertt.carrd.co/) 
 
-[straw replies](https://straw.page/draw?bio=jazzyarlert) !!!!
+[straw replies](https://jazzyarlert.straw.page/) !!!!
 
 
 ![](https://cdn.cdnstep.com/eFElt5N5NYdwUYTRkmHo/7.png)
