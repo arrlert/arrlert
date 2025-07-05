@@ -2,6 +2,8 @@
 
 [strawpage](https://jazzzie.straw.page/) ‪♡ [carrd](https://arrlertt.carrd.co/) 
 
+[straw replies](https://straw.page/draw?bio=jazzyarlert) !!!!
+
 
 ![](https://cdn.cdnstep.com/eFElt5N5NYdwUYTRkmHo/7.png)
 
