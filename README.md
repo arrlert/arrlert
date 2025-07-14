@@ -1,6 +1,6 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wjdes5kajmt1gqhbzctuzbgid&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
 
-read links
+read links yaay
 
 ![](https://s1.aigei.com/src/img/gif/a0/a02683a3e3a84482a4c2366bca7fdb60.gif?imageMogr2/auto-orient/thumbnail/!282x282r/gravity/Center/crop/282x282/quality/85/%7CimageView2/2/w/282&e=2051020800&token=P7S2Xpzfz11vAkASLTkfHN7Fw-oOZBecqeJaxypL:jm1a2U0pXcP23VyQt3m28xRC00Q=)
 
